@@ -64,5 +64,5 @@ Credit : CyberLaza
 
 Sʜᴀʀᴇ ᴀɴᴅ sᴜᴘᴘᴏʀᴛ ᴜs 
 🤗  ֎───•◈◉◈•───•◈◉◈•───֎  
-🔶 𝑰𝒏𝒗𝒊𝒕𝒆 𝑭𝒓𝒊𝒆𝒏𝒅𝒔 (Channel)➛ t.me/CyberLaza
+🔶 𝑰𝒏𝒗𝒊𝒕𝒆 𝑭𝒓𝒊𝒆𝒏𝒅𝒔 (Channel)➛ https://t.me/CyberLaza
 🔶 𝑰𝒏𝒗𝒊𝒕𝒆 𝑭𝒓𝒊𝒆𝒏𝒅𝒔 (Page)➛ https://facebook.com/CyberLaza
